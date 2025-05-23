@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Scientist & Journalist
+DATA SCIENTIST, ANALYST & JOURNALIST
 
 
 ## 🌐 Socials:
